@@ -1,2 +1,2 @@
-# 300-b-i-code-thi-u-nhi
+# 300-bai-code-thieu-nhi
 Mục tiêu 1,2 bài / ngày
